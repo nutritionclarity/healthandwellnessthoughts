@@ -1,6 +1,5 @@
 ---
-layout: post
-title: "Herbs for Kidney Cleanse"
+Herbs for Kidney Cleanse
 ---
 
 People search for herbs for a kidney cleanse because a simple tea routine sounds easier than another strict reset. Kidneys already filter waste and manage fluid balance, so kidney cleanse herbs are not a medical cleanse. Think of these herbs as optional helpers for hydration habits, not a detox shortcut.
