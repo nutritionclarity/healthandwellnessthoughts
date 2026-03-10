@@ -7,7 +7,7 @@ People search for herbs for a kidney cleanse because a simple tea routine sounds
 This content is for educational purposes only and is not intended as medical advice.
 Consult your healthcare provider for guidance specific to your situation.
 ## What Does “Kidney Cleanse” Mean, Really?
-“Kidney cleanse” is a wellness label, not a body function that can get switched on. Most “cleanse” routines boil down to drinking more fluids, cutting back on salty foods, and adding tea, often an herbal kidney cleanse blend.
+“Kidney cleanse” is a wellness label, not a body function that can get switched on. Most “cleanse” routines boil down to drinking more fluids, cutting back on salty foods, and adding tea, often an [herbal kidney cleanse blend](https://alernakidneyhealth.com/collections/all).
 Kidneys handle the real work around the clock, filtering blood, removing waste products, and balancing water and minerals. Searches for kidney detox herbs usually come from feeling puffy, off-track, or simply wanting a reset. Major health organizations also point out that detox programs have limited evidence, and some plans can cause problems when restrictions get extreme or diuretics get overused.
 ## How To Use Herbs For Kidney Cleanse Safely
 A tea routine can be a reasonable way to try herbs for kidney detox tea, but the safest version is also the simplest.
@@ -30,7 +30,7 @@ Hibiscus can be a great option when the real goal is drinking more fluids. Extra
 Ginger is not a kidney cleanser, but it makes warm water easy to stick with. That matters because the most reliable “cleanse” upgrade is consistent hydration, not an aggressive plan.
 Ginger also comes with the usual herbal cautions. Blood thinners and some medications can be a concern, so checking compatibility is smart when ginger becomes a daily habit.
 ### Turmeric
-Turmeric is usually added for general wellness, not because it “flushes” the kidneys. Food and tea amounts are typically modest. Supplements are a different story.
+[Turmeric is usually added for general wellness](https://pmc.ncbi.nlm.nih.gov/articles/PMC12176752/), not because it “flushes” the kidneys. Food and tea amounts are typically modest. Supplements are a different story.
 Case reports have linked heavy turmeric supplementation to kidney problems in rare situations, including oxalate-related kidney injury. That risk is not a reason to fear turmeric in cooking, but it is a reason to treat high-dose capsules as a serious choice, not a casual add-on.
 ### Parsley
 Parsley is familiar, mild, and easy to find. Some people brew it as a light tea when trying kidney cleanse tea herbs at home. It's also described as a “water herb,” but most diuretic-style evidence comes from animal studies, so the claim level should remain modest.
