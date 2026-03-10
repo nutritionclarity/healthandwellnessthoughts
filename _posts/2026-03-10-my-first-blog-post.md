@@ -1,6 +1,5 @@
 ---
-layout: post
-title: "My First Blog Post"
+My First Blog Post
 ---
 
 Welcome to my first blog post.
